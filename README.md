@@ -1,2 +1,2 @@
 # Bissmillah
-Ini awal bray
+Ini awal bray, pusing YaAllah :(
